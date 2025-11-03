@@ -1,0 +1,2 @@
+# Ai_trend_Assignment
+Ai_trend_Assignment
